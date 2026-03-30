@@ -6,6 +6,6 @@
 
 [strawpage](https://rensonly.straw.page) >>> [atabook](https://rensonly.straw.page)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317cbzjv6e7j56vbrupxggnsoxra&cover_image=false&theme=natemoo-re&show_offline=true&background_color=ffffff&interchange=true&profanity=false&bar_color=ffffff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=317cbzjv6e7j56vbrupxggnsoxra&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317cbzjv6e7j56vbrupxggnsoxra&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=true&profanity=false&bar_color=1e00ff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=317cbzjv6e7j56vbrupxggnsoxra&redirect=true)
 
 </div>
