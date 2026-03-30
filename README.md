@@ -6,4 +6,6 @@
 
 [strawpage](https://rensonly.straw.page) >>> [atabook](https://rensonly.straw.page)
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317cbzjv6e7j56vbrupxggnsoxra&cover_image=true&theme=default&show_offline=true&background_color=544040&interchange=true&profanity=false&bar_color=6260d2&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=317cbzjv6e7j56vbrupxggnsoxra&redirect=true)
+
 </div>
