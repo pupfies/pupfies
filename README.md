@@ -1,10 +1,15 @@
 <div align="center">
 
-[![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1487822024050085888/Untitled455_20260329223318.png?ex=69ca89bc&is=69c9383c&hm=98e9234cf375ca73ac68deb624355b004d04f261a00e083847c37003207e0668)](https://x.com/phyros035?s=20) 
-
 [![Hits](https://hits.sh/github.com/pupfies.svg?label=smile%20parrot.&color=c582fa&labelColor=573c3c)](https://hits.sh/github.com/pupfies/)
 
-[strawpage](https://rensonly.straw.page) >>> [atabook](https://pupfies.atabook.org/)
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1488515329738145862/Untitled458_20260331202819.png?ex=69cd0f6d&is=69cbbded&hm=38a809a288643a45c1eb381bb65461c8078994677acbfbfb8bb8b37a06bd3ad3)
+
+[![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1488506210880847993/Untitled457_20260331194431.png?ex=69cd06ef&is=69cbb56f&hm=95b6d653f5fae61b40e2def0caad329ad4b639c91471345a6c792a8a23b1e1b4)](https://pin.it/1LbtAz7Wn) 
+
+[strawpage](https://rensonly.straw.page)   ⋆‧°𓏲ּ𝄢   [atabook](https://pupfies.atabook.org/)
+
+![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1488515329738145862/Untitled458_20260331202819.png?ex=69cd0f6d&is=69cbbded&hm=38a809a288643a45c1eb381bb65461c8078994677acbfbfb8bb8b37a06bd3ad3)
+
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317cbzjv6e7j56vbrupxggnsoxra&cover_image=true&theme=natemoo-re&show_offline=true&background_color=ffffff&interchange=true&profanity=false&bar_color=4c00ff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=317cbzjv6e7j56vbrupxggnsoxra&redirect=true)
 
