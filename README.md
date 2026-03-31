@@ -4,7 +4,7 @@
 
 [![Hits](https://hits.sh/github.com/pupfies.svg?label=smile%20parrot.&color=c582fa&labelColor=573c3c)](https://hits.sh/github.com/pupfies/)
 
-[strawpage](https://rensonly.straw.page) >>> [atabook](https://rensonly.straw.page)
+[strawpage](https://rensonly.straw.page) >>> [atabook](https://pupfies.atabook.org/)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317cbzjv6e7j56vbrupxggnsoxra&cover_image=true&theme=natemoo-re&show_offline=true&background_color=ffffff&interchange=true&profanity=false&bar_color=4c00ff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=317cbzjv6e7j56vbrupxggnsoxra&redirect=true)
 
