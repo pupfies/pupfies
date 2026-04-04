@@ -2,14 +2,20 @@
 
 [![Hits](https://hits.sh/github.com/pupfies.svg?label=smile%20parrot.&color=c582fa&labelColor=573c3c)](https://hits.sh/github.com/pupfies/)
 
-![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1488515329738145862/Untitled458_20260331202819.png?ex=69cd0f6d&is=69cbbded&hm=38a809a288643a45c1eb381bb65461c8078994677acbfbfb8bb8b37a06bd3ad3)
+![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1489835051028971561/Untitled462_20260404115217.png?ex=69d1dc83&is=69d08b03&hm=330533e8a5878455646edfcbe03c308527e80841eee6f5431b0393ee02e362fc&)    ![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1489835050714533928/Untitled462_20260404115225.png?ex=69d1dc83&is=69d08b03&hm=5062fed5d6ce63081d4d42d6e57e82a37d80d21f01164382a91bb4dfdd6466ec&)
 
-[![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1488506210880847993/Untitled457_20260331194431.png?ex=69cd06ef&is=69cbb56f&hm=95b6d653f5fae61b40e2def0caad329ad4b639c91471345a6c792a8a23b1e1b4)](https://pin.it/1LbtAz7Wn) 
+[![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1489837010503073862/Untitled463_20260404120005.png?ex=69d1de57&is=69d08cd7&hm=58806cee56a85703709318ec4ae1113720a533f4b8a96811d2ddef1e4d7030cb)](https://www.tumblr.com/donsiur/807417493587099648/something-something-about-me-thinking-about-this?source=share)
+
+![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1489833040095215728/Untitled461_20260404114427.png?ex=69d1daa4&is=69d08924&hm=bb76b5ff2fd517dee3a2fe87d014e302b825e04f9c0cfbbd6dc300e859c41e8e)
+
+![N8uU30MvHFyXuEbd-ezgif com-cut](https://github.com/user-attachments/assets/9d03e49e-d83b-46ce-8b41-eeb7e826298f)
+
 
 [strawpage](https://rensonly.straw.page)   ⋆‧°𓏲ּ𝄢   [atabook](https://pupfies.atabook.org/)
 
-![Alt text](https://cdn.discordapp.com/attachments/1375762041461145642/1488515329738145862/Untitled458_20260331202819.png?ex=69cd0f6d&is=69cbbded&hm=38a809a288643a45c1eb381bb65461c8078994677acbfbfb8bb8b37a06bd3ad3)
+![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1489833040095215728/Untitled461_20260404114427.png?ex=69d1daa4&is=69d08924&hm=bb76b5ff2fd517dee3a2fe87d014e302b825e04f9c0cfbbd6dc300e859c41e8e)
 
+![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1489833937286201424/Tumblr_l_12373643924429.jpg?ex=69d1db7a&is=69d089fa&hm=d637fc14c95ced57696827a0c2e31f77b01da7501b295b50bbd29b46feacfc8e)![Alt text](https://cdn.discordapp.com/attachments/1487771201148551340/1489834438115459124/Tumblr_l_12450682751741.jpg?ex=69d1dbf1&is=69d08a71&hm=2fb774c01da3d3b1948b892631b135a1932680e88890b8f988b1177888f17c54)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317cbzjv6e7j56vbrupxggnsoxra&cover_image=true&theme=natemoo-re&show_offline=true&background_color=ffffff&interchange=true&profanity=false&bar_color=4c00ff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=317cbzjv6e7j56vbrupxggnsoxra&redirect=true)
 
